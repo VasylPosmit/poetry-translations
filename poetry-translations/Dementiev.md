@@ -30,7 +30,7 @@
 1977*
 
 ## Translation
-### Never regret
+#### Never regret
 
 Never ever come down to regret,  
 If it cannot be changed so give up the pursuit.   
@@ -55,8 +55,8 @@ As a crumpled note, let your past execute.
 
 Never, whatever regret for the root,  
 Neither days had been lost nor the love had been burnt,  
-Let another ingeniously playing the flute,  
-But the melody has been more geniously heard.
+Let another ingeniously play on the flute  
+A melody you more geniously heard.
 
 *Vasyl Posmitny  
 2014-2017*
